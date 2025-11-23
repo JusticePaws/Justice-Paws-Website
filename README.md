@@ -1,0 +1,1 @@
+Justice Paws presides over the internet’s absurdities with one unimpressed stare. Grumpy but fair, this feline judge overrules bad arguments and chaotic trades alike. The community writes the cases, memes the verdicts, and Paws delivers judgment with claws and style.
